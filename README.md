@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gidakov21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... ergw
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... uyr
 - 📫 How to reach me ...1jd fg ergerga erfutdyuty; iyo rthrt
 3457d.bjkjkk.rtiy
 <!---
