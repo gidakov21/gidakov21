@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... ergwng xfg
 - 💞️ I’m looking to collaborate on ... uyrewqf few er
-- 📫 How to reach me ...1jd fg ergerga erfutdyuty; iyo rthrt 6456tryrttykyr 
+- 📫 How to reach me ...1jd fg ergerga erfutdyuty; iyo rthrt 6456tryrttykyr h 5hy 53
 3457d.bjkjkk.rtiyk yujey
 <!---j45
 gidakov21/gidakov21 is a ✨ special ✨ repository because its `README.m rtyu tr` (this file) appears on your GitHub profile.
